@@ -1,0 +1,1 @@
+Vi är en studiefrämjande spelförening som riktar sig till universitetsstuderande, där vi erbjuder hjälpmedel och studiecirklar samt spelkvällar för att göra studierna enklare och roligare!
